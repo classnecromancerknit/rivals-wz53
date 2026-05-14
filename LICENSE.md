@@ -1,4 +1,4 @@
-#  
+#  instant Scripts for rivals is the best rivals Script, featuring auto-sell and invisibility. Safe and powerful for all your needs.
 
 
 
